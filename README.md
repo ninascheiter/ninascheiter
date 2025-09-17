@@ -49,7 +49,6 @@
 
 ## 📫 Get in Touch  
 - LinkedIn:  www.linkedin.com/in/nina-s-845909294
-- Email: nina.shtr03@gmail.com
 
 ---
 
